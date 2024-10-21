@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rudrangibhanu22@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1ZwG2q7RW7_TzpOtcj98i_LzieGwWgnPM/view
+- 📄 Know about my experiences https://drive.google.com/file/d/1XwOmc_TaZqi8iYPoF7VE0zCGhqRYJ06I/view
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
